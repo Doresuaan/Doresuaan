@@ -1,0 +1,7 @@
+- 👋 Heya, i'm @Doresuaan
+- 👀 I’m interested in ... Modding Games and Art!
+- 🌱 I’m currently learning ... How to code Mods for Stardew Valley with Content Patcher and HTML in general for websites.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...They/Them or any!
+- ⚡ Fun fact: ... I'm a coffee addicted. I want coffee flowing through my blood!
